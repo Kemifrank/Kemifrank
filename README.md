@@ -12,5 +12,5 @@ Ask me about Social media campaigns and Journalism.
 
 Pronouns: she/her
 
-Fun: I'm social Assertive
+Fun: I'm socially Assertive
 
